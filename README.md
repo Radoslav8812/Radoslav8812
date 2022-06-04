@@ -7,4 +7,3 @@
 - 📫 How to reach me:
 - radimk8812@abv.bg
 - https://www.facebook.com/profile.php?id=100060190982695
-- https://www.instagram.com/grimreaper8712/
